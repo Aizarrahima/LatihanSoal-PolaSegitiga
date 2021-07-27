@@ -1,0 +1,1 @@
+Output Pola Segita (A)
